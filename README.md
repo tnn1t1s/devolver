@@ -9,4 +9,4 @@ Devo's Whip It @
 * Zero Point Five: https://youtu.be/0BojNbVYYQQ
 
 Eno Here Come The Warm Jets
-* Whip Up the Jets: https://studio.youtube.com/video/Lal8lqZ2dEQ/edit
+* Whip Up the Jets: https://youtu.be/Lal8lqZ2dEQ
